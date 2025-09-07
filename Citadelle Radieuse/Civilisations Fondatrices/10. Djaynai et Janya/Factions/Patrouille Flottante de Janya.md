@@ -1,0 +1,1 @@
+Les forces de sécurité de Janya sont appelées la Patrouille Flottante, du nom de leurs robes sombres et fluides. Leur quartier général est une forteresse argentée, gardée par d'imposantes sentinelles en armure hérissée de pointes. Ils n’ont réussi à explorer qu’une petite partie de la Tranchée de l’Amour Perdu, qui contient les épaves de nombreux navires et des sites mystérieux.

@@ -1,0 +1,1 @@
+Cadeau des Bakunawa aux premiers habitants de l'archipel, les passerelles aériennes de Dayawlongon sont des prouesses architecturales magiques qui relient de nombreuses îles de la région. Les voyageurs sont nombreux et les passerelles aériennes les plus fréquentées abritent de petites communautés où ils peuvent se reposer et se ravitailler.

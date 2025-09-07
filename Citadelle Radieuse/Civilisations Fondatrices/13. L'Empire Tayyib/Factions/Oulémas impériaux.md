@@ -1,0 +1,1 @@
+Certains fidèles de l’Iwahhid érudits rejoignent les _Oulémas_ impériaux, un ordre d'érudits Muwahhid parrainé par le trône. Les oulémas fournissent des services de lancement de sorts à la population et entretiennent l’infrastructure de l’empire en matière de lampadaires magiques et de cercles de téléportation.

@@ -1,0 +1,1 @@
+Cœur du commerce et de l’art de Zinda. Quartier composé de maisons palatales, de jardins luxuriants et de musées. Les artistes de rue de présentent de jour, et les marchands ouvrent leur étal de nuit. Les guildes se trouvent dans les tours du quartier. Les artistes affluent pour se perfectionner ici.

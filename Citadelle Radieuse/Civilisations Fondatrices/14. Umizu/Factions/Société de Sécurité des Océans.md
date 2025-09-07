@@ -1,0 +1,1 @@
+La Société de Sécurité des Océans est le principal syndicat criminel d’Umizu. Les lieutenants de la société dirigent des casinos déguisés en salons de thé le long de la jetée de la Lune Rayonnante, qui est leur refuge. Pour éviter toute surveillance, elle emploie des aventuriers comme agents indépendants.

@@ -1,0 +1,1 @@
+Ce groupe rassemble les acolytes des divinités de St-Souffle. Leur tâche est de préserver la tradition orale de l’Éveil ainsi que la _Chanson_. Ils voyagent à travers St-Souffle pour apprendre les exploits régionaux et juger si certains mériteraient d’être ajoutés à la chanson, partageant d’autres histoires du pays et encourageant les gens à suivre l’exemple de l’Engagement.

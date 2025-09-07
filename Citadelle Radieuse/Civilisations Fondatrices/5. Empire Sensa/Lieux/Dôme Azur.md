@@ -1,0 +1,1 @@
+Dans le palais côtier de l’Impératrice Inaya, on trouve le Dôme Azur, siège du pouvoir de l’Empire Sensa. C’est là que l’Impératrice rencontre ses conseillers et s’entretient avec les dirigeants des trois cités-états. C’est un honneur ne serait-ce que d’entrer dans cet endroit.

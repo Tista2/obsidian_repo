@@ -1,0 +1,1 @@
+Cette grande tranchée sous-marine près de Janya résonne de mystère et d’inquiétude. Elle doit son nom à la mémoire des Djaynaiens qui disparurent au cours du Passage des Vautours, avant l'apparition du premier chil-liren. La tranchée est définie par les prairies rose pâle de créatures à plumes connues sous le nom de Nénuphars.

@@ -1,0 +1,1 @@
+Les Pisteurs sont des guides et explorateurs basés à Xoxotla. Ils maintiennent les chemins et routes sûrs et dégagés. Ils se trouvent souvent face aux géants de feu qui vivent près des volcans et prétendent que leur habitat a été détruit lorsque les dieux ont déplacé des montagnes pour fonder Tletepec.

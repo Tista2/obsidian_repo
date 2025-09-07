@@ -1,0 +1,1 @@
+Xoxotla, la capitale de Tletepec, est un refuge pour tous ceux qui ont dû quitter leur maison autre part dans la région. Sa fondatrice, Meztli, voulait un endroit sûr pour sa famille et a fait une offrance conséquente aux dieux. Elle reçut une plaine plate où elle a pu construire son nouveau foyer.

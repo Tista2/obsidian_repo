@@ -1,0 +1,1 @@
+Ceux qui enfreignent la loi ou mènent un travail missionnaire non-autorisé répondent devant la Garde Étincelante. L'ordre religieux applique la loi sans préjugés, même si ses rangs comprennent à la fois des fonctionnaires au cœur tendre et des disciplinaires qui aiment réprimander les citoyens pour leurs délits. C’est un ordre sacré de protecteurs loyal à Atash.

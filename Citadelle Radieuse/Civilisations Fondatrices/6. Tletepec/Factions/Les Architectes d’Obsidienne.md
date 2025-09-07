@@ -1,0 +1,1 @@
+Ce groupe d’érudits contrôle la ville d’Itzimico. Ils créent des inventions magiques qui protège la ville. Ils testent fréquemment leurs nouvelles idées sur les murs extérieurs, construits pour résister à la lave et aux cendres. Ils paient généreusement ceux qui osent les aider dans leurs tests.

@@ -1,0 +1,1 @@
+Organisation marchande influente ayant récemment fondé une force navale privée.

@@ -1,0 +1,1 @@
+Le Rugissement Silencieux est une coalition secrète formée par une compagnie d’artisans, de philosophes et de marchands. Ils ont pour but d’évincer Atash et d’instaurer la démocratie.

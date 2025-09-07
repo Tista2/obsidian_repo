@@ -1,0 +1,1 @@
+Les guerriers Cababa sont des combattants-éclaireurs d’élite chargés de protéger les voyageurs sur les _caminos del prado_. Ils patrouillent constamment à la recherche des braconniers et des bandits. Ils portent des accessoires fabriqués à partir de plumes et de fleurs, associés à des kilts en peau de serpent.

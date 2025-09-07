@@ -1,0 +1,3 @@
+Outre leurs rivalités culturelles, Sagorpur, Tippurika et Ashwadhatu s’engagent rarement dans des conflits majeurs : vivre dans un pays qui change constamment au gré des caprices des rivières est déjà assez précaire. L'ombre de la cité perdue de Manivarsha plane sur les villes restantes pour rappeler que la vie à Shankhabhumi peut facilement être balayée.
+
+Le pouvoir dans chaque ville est partagé entre trois factions : quinze sénateurs qui gouvernent officiellement les affaires de la cité-État ; un réseau de majhis navigateurs fluviaux connu sous le nom de Bhatiyali ; et d’anciens candidats aux procès Shankha qui deviennent des artistes publics et des héros célèbres, s’ils ne deviennent pas eux-mêmes sénateurs.

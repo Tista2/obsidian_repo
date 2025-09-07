@@ -1,0 +1,3 @@
+Plus de la moitié des travailleurs de la ville vivent dans ces zones frontalières, tandis qu’un nombre bien plus important de personnes travaillent dans les mines et les fermes de la région. Ces communautés ont souffert d’une négligence qui a conduit à une augmentation du banditisme en plus des attaques habituelles de monstres.
+
+L'une des plus grandes colonies frontalières, Milpazul, fournit un abri aux voyageurs. Elle a acquis une réputation de plaque tournante pour les mercenaires, car les habitants se tournent vers les _caporales_ – défenseurs traditionnels à cheval – pour assurer leur sécurité en l'absence de soutien de la ville.

@@ -1,0 +1,1 @@
+Yongjing est le centre gouvernemental de la dynastie Xing. Au sommet se trouve l'Empereur de Jade Blanche, le troisième de la dynastie Xing. Comme presque tous les monarques précédents, l’empereur est un nain, avec une durée de vie suffisamment longue pour avoir fait l’expérience directe de la nature cyclique de l’histoire – un trait considéré comme nécessaire pour gouverner.

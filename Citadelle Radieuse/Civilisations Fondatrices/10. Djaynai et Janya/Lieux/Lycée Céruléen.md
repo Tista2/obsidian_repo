@@ -1,0 +1,1 @@
+Centre culturel de Janya, le Lycée Céruléen est un grand collège bardique doté d'une série de salles voûtées. Des pointes en forme de glaçons entourent la véranda principale du Lycée Céruléen, qui ressemble à un cristal bleu massif. Djaynju, l'opéra de Djaynai, n'est qu'une des nombreuses formes musicales pratiquées et perfectionnées ici.

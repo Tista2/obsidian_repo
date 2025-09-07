@@ -1,0 +1,1 @@
+Défenseurs traditionnels à cheval, assurent la sécurité dans tout le territoire de _las fronteiras_ puisque la ville n’offre aucun soutien.

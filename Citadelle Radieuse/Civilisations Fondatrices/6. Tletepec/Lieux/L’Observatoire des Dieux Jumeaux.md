@@ -1,0 +1,1 @@
+Cet observatoire se trouve entre les volcans des Dieux Jumeaux. C’est le quartier général des Gardiens des Cendres. Les plus vieux d’entre eux prétendent que l’observatoire renferme tout ce qu’il faut pour résister au temps des Hautes-Cendres.

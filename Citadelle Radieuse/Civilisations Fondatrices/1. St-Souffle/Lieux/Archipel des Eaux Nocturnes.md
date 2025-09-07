@@ -1,0 +1,3 @@
+Communautés qui se serrent les coudes, ont constuit des maisons colorées sur pilotis sur la côte sud. De nombreux monstres rôdent dans ces îles. Les couleurs vibrantes sont non seulement une marque d’honneur pour les dieux, elles éloignent aussi les créatures dangereuses comme les crocodiles, les tertres errants ou les guenaudes.
+
+Chaque île a son propre commerce et sa propre culture, mais elles sont toutes liées par une flotte d’Écumoires (barques similaires à des pirogues ou canoë).

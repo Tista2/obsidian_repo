@@ -1,0 +1,1 @@
+La Convention Arcanique réunit des magiciens traditionnels dans un grand manoir. Mais ils n’ont de magique que le nom : ils ont surtout beaucoup de contacts précieux. Ils président des festivals, mariages, cérémonies funéraires et autre. La plupart sont des personnes âgées dont les descendant sont des membres de la Royauté de l’Ecu ou possèdent leur propre guilde.

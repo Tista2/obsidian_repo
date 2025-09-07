@@ -1,0 +1,1 @@
+La cité-état de Niba se trouve le long de la côte sud-est de Sensa. Dirigée par la reine Sainesha, Niba est réputée pour ses grands bazars et on dit que les meilleurs orfèvres de Sensa vivent là-bas. Les cafés, théâtres et courses sont des divertissements très prisés. Le prince Kirina, aîné de la reine, est également une célébrité locale.

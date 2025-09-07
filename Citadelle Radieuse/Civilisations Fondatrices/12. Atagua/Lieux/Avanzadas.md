@@ -1,0 +1,1 @@
+Les _Avanzadas_ sont trois avant-postes éloignés qui abritent trois factions notables : le Hamac du Diable abrite la Tribu des Bâtisseurs ; ce qui sert aujourd’hui de centre d’échange aux thri-kreen des Llanos était autrefois la distillerie de rhum El Chapán ; le Monastère du Tapir d’Argent est le sanctuaire et l’école des Soigneurs Verde.

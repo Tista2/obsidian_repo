@@ -1,0 +1,1 @@
+Des anarchistes particulièrement mécontents avec le règne d’Atash et appelés les Héritiers des Cendres fomentent dans l’ombre.

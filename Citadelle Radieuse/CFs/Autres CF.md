@@ -1,0 +1,2 @@
+- Une CF perdue se fait attaquer par un des lieutenants de BBEG
+    - Qqun sur cette CF trouve un dispositif d'urgence

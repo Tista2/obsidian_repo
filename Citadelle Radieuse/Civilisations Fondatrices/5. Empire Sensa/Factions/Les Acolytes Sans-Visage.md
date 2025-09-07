@@ -1,0 +1,1 @@
+Les Acolytes de la Prophétesse Sans-Visage, aussi appelés les Acolytes Sans-Visage, voire même les Sans-Visage, sont les plus fervents fidèles de la Prophétesse. Ils prétendent que connaître le nom de la Prophétesse confère des pouvoirs dangereux et interdits.

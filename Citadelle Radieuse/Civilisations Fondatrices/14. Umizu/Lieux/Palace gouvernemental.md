@@ -1,0 +1,1 @@
+Une immense villa sert de bureau administratif central à Umizu et de résidence à son maire, Daimyo Hogishi Takemi. Le palais est célèbre pour les fêtes élégantes de Hogishi et pour son concours annuel de poésie qui attire les nobles à Umizu, ainsi que leurs amères rivalités et leurs gardes personnels.

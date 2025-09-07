@@ -1,0 +1,1 @@
+Un havre naturel protège le port de Churapoor des moussons saisonnières. Malgré les ravages de la guerre, la ville jouit d'une économie saine, mais elle a toujours besoin d'aventuriers pour garder ses expéditions de concoctions alchimiques, d'épices et de riches textiles.

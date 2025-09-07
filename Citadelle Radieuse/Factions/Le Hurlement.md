@@ -1,0 +1,1 @@
+Les Hurleurs et Hurleuses forment le Hurlement. Ils croient en la domination de l'Obscurité Hurlante et lui vouent un culte. Ils s'opposeront à toute action contre cette force apocalyptique. S'ils doivent y laisser la vie, c'est que c'était ce qui devait arriver. Le

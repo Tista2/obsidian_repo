@@ -1,0 +1,1 @@
+Il y a plusieurs décennies, une expédition de Kalapang a établi un camp sur Lambakhlua appelé les Derniers Pas de Bravoure, dans l’espoir d’exorciser les esprits tourmentés de la terre. Jusqu’à présent, ces soldats et érudits ont fait peu de progrès vers leur objectif.
